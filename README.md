@@ -1,0 +1,1 @@
+# SpotPlacement1.0
